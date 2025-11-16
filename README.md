@@ -1,1 +1,1 @@
-- ✨  Hi, I’m @mrithika10 ♡✧ ೄྀ࿐
+-  Hi, I’m @mrithika10 
